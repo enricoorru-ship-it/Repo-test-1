@@ -2,4 +2,5 @@
 
 What's up guys
 
-[JamesDoakesDoakesMemeGIF](https://github.com/user-attachments/assets/5bf1cf2b-c5ac-4c09-b88d-fc928b2814bc)
+![JamesDoakesDoakesMemeGIF (2)](https://github.com/user-attachments/assets/5117436e-0244-449e-b5e0-d3523817bde7)
+
